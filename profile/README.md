@@ -9,4 +9,8 @@ Some quotes from out members:
 
 > "It has Chinese, of course you can trust it." - Axle Axolotl Sam Freund
 
-> "Come on, come on, come on, FUCK!!!!!!" - Servo Squirel Henry Martin
+> "i use arch, btw." - Axle Axolotl Henry Martin
+
+> "I just bombed an assignment and I still have an A!" - Axle Axolotl Sam Freund
+
+> "People say I use linux too much. I say I use linux too little." - Axle Axolotl Henry Martin
