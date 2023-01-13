@@ -14,3 +14,7 @@ Some quotes from out members:
 > "I just bombed an assignment and I still have an A!" - Axle Axolotl Sam Freund
 
 > "People say I use linux too much. I say I use linux too little." - Axle Axolotl Henry Martin
+
+> "E" - Java Joker Charlie
+
+> "Gracious Amateurism®" - Axle Axolotl Alex Krostag
